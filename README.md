@@ -92,7 +92,7 @@ El equipo de marketing puede ordenar la tabla por probabilidad y contactar prime
 
 **Carlos García-Arisco**
 Máster en Marketing Digital e IA — INESDI Business Tech School (Grupo Planeta)
-[LinkedIn](www.linkedin.com/in/carlos-garcia-arisco-vilchez-yourbestchoice) 
+[LinkedIn](https://www.linkedin.com/in/carlos-garcia-arisco-vilchez-yourbestchoice)
 [GitHub](https://github.com/carlosarisco55-max)
 
 ## 📚 Contexto académico
